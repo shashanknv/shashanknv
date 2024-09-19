@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm 3rd year Information Science student at SJB Institute of Technology, Bangalore
+I'm final year Information Science student at SJB Institute of Technology, Bangalore
 
 
 ## 🌐 Socials:
